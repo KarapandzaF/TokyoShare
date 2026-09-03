@@ -63,10 +63,10 @@ Was ich aber auf jeden Fall sehr cool finde ist [Tower Records](https://maps.app
 noch kurz zu erwähnen Ginza ist Tokios luxus Viertel. Es ist eine experience. Nirgendwo anders auf der Welt gibt es 3 Louis Vuitton Kaufhäuser die alle nur 200 Meter von einander entfernt sind. Yamaha store ist lustig auf dem einem Stockwerk gibt es Instrumente und auf dem anderen Flugzeug Motoren.
 
 ## Tokio Imperial Palace und Central Station - _The Ant that Shouted 'I' at the Heart of the World_
-Der Tokio Imperial Palace ist ein riesiger Garten und spannender Architektur. Es gibt kein Foto was darstellt wir groß der Palasthof und vor allem wie klein man sich dadurch fühlt. Once in a lifetime Erlebnis wenn man da das erste mal ist. Natur ist unfassbar schön und das ganze ist auch kostenlos. 
+Der Tokio Imperial Palace ist ein riesiger Garten mit spannender Architektur. Es gibt kein Foto was darstellt wir groß der Palasthof und vor allem wie klein man sich dadurch fühlt. Once in a lifetime Erlebnis wenn man da das erste mal ist. Natur ist unfassbar schön und das ganze ist auch kostenlos. 
 ![](https://cdn.cheapoguides.com/wp-content/uploads/sites/2/2018/12/imperial-palace-moat-bridge_gdl-1024x600.jpg)
 
-Wenn man weiter läuft kommt raus zu einer Straße die direkt zu Tokio Central führt. Es ist ein ganz einzigartiges Gefühl wenn man die Flache Wiese mit den großen Gebäuden im Hintergrund sieht.
+Wenn man weiter läuft kommt raus zu einer Straße die direkt zu Tokio Central führt. Es ist ein ganz einzigartiges Gefühl wenn man die flache Wiese mit den großen Gebäuden im Hintergrund sieht.
 
 ![[Pasted image 20260903201343.png]]
 

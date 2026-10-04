@@ -11,6 +11,10 @@ Von den Genren sind die begriffe hier: Midwest Emo, Shoegaze und halt Indie Rock
 
 # Song Notizen
 
+## Atta Girl
+![[Pasted 2026-10-04 at 7.40.39 PM.png]]
+*Heavenly - Atta Girl* ist so unglaublich underrated und so ein schöne EP. Hab nicht ganz so viel zu erzählen die EP ist nur sehr gut und kannst du dir auch sehr gerne anhören!
+
 ## It's Days Like This...
 ![[Pasted image 20261004015930.png]]
 Everyone Asked About You ist eine Band, die erst lange nachdem sie Ihre Musik gemacht hatten beliebt wurden. Der Song kommt von der self titled EP. Das Projekt hatte vor die fröhliche Gefühle vom Frühling darzustellen.
